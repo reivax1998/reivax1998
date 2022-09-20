@@ -1,1 +1,1 @@
-- Hi, my name is Avery, I'm not really good at coding but I hope to learn! But I'm willing to support anyone's creations,
+-I'm bored, and I don't code, why am i on github?
