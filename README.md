@@ -1,1 +1,1 @@
-- Hi, my name is avey, I'm not really good at coding but I hope to learn! But i'm willing to support anyone's creations
+- Hi, my name is Avery, I'm not really good at coding but I hope to learn! But I'm willing to support anyone's creations,
